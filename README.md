@@ -1,1 +1,4 @@
-# Readme
+# I'M NEVTBOTZ
+HAI SEMUA 👋
+WA : https://wa.me/+62881037923331
+SUPORT GW TERUS YAW :3
